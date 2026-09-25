@@ -1,2 +1,0 @@
-# amazing-video
-watch it.
